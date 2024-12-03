@@ -1,4 +1,4 @@
-sdgsgsdg sdg sdg sdg s
-sdgsdg a dfg asdf  asdg
-adsg g a4 4 
-sdgsd
+# 1. Миккоев Павел Павлович
+# 2. 26 лет
+# 3. Фронтенд-разработчик
+# 4. Санкт-Петербург
