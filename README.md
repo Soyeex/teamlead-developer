@@ -1,1 +1,13 @@
 # teamlead-developer
+
+PAVEL MIKKOEV - SOYEEX - логин GitHub
+PAVEL MIKKOEV - SOYEEX - логин GitHub
+PAVEL MIKKOEV - SOYEEX - логин GitHub
+PAVEL MIKKOEV - SOYEEX - логин GitHub
+PAVEL MIKKOEV - SOYEEX - логин GitHub
+PAVEL MIKKOEV - SOYEEX - логин GitHub
+PAVEL MIKKOEV - SOYEEX - логин GitHub
+PAVEL MIKKOEV - SOYEEX - логин GitHub
+PAVEL MIKKOEV - SOYEEX - логин GitHub
+PAVEL MIKKOEV - SOYEEX - логин GitHub
+PAVEL MIKKOEV - SOYEEX - логин GitHub
